@@ -13,7 +13,7 @@ The highly anticipated *Chhaava* movie, set to release in 2025, is already creat
 
 *Chhaava* brings a fresh and exciting narrative to the big screen, blending elements of drama, action, and emotion. The movie is set in a deeply rooted cultural context, exploring themes of love, betrayal, and redemption. The storyline is expected to keep viewers on the edge of their seats, filled with unexpected twists and compelling character arcs.
 
-What makes *Chhaava* stand out is its exploration of both personal and societal struggles, making it a movie that resonates with audiences from all walks of life. The film’s focus on deep-rooted emotional connections and intense human experiences is expected to make it not just a film, but a powerful cinematic experience.
+What makes *Chhaava* stand out is its exploration of both personal and societal struggles, making it a movie that resonates with audiences from all walks of life. The film’s focus on deep-rooted emotional connections and intense human experiences is expected to make it not just a film, but a powerful cinematic experience
 
 ## Star-Studded Cast and Performances
 

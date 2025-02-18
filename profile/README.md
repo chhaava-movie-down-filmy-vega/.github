@@ -1,6 +1,6 @@
 # Chhaava (2025) [𝐌𝐨𝐯𝐢e] 𝐃𝐨𝐰𝐧𝐥𝐨𝑎𝑑 Filmy𝐳𝐢𝐥𝐥𝐚 𝐌𝐩𝟒𝐦𝒐𝒗𝒊𝒆𝒛 𝐊𝐮𝐭𝐭𝐲movies 𝐕𝐞𝐠𝐚movies 𝐅𝐢𝐥𝐦𝐲𝒘𝒂𝒑 𝐇𝐢𝐧𝐝𝐢 𝐃𝐨𝐰𝐧𝐥𝐨𝑎𝑑
 
-The highly anticipated *Chhaava* movie, set to release in 2025, is already creating a buzz in the film industry. With its intriguing storyline, powerful performances, and stunning visuals, *Chhaava* promises to be one of the most talked-about films of the year. Directed by a visionary filmmaker, this movie is set to capture the hearts and minds of audiences around the world
+(18-Feb) The highly anticipated *Chhaava* movie, set to release in 2025, is already creating a buzz in the film industry. With its intriguing storyline, powerful performances, and stunning visuals, *Chhaava* promises to be one of the most talked-about films of the year. Directed by a visionary filmmaker, this movie is set to capture the hearts and minds of audiences around the world
 
 ![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
 <h3><a href="https://movieslink.short.gy/chhaava">➤ ►🌍📺📱👉 Chhaava 2025 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
